@@ -1,2 +1,3 @@
 # Cindy
-Aku sayang kamu
+Aku rindu sama kangen kmu
+Pengen ketemu kamu 😔😭
